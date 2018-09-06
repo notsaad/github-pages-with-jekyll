@@ -1,3 +1,3 @@
-# Welcome to my blog
+# welcome to this page
 
-I'm glad you are here. I plan to talk about ...
+im not sure what i plan to do with this
